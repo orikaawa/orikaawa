@@ -1,5 +1,5 @@
 ![boom](https://github.com/orikaawa/orikaawa/blob/main/cat.jfif)
-
+jumpscare!
 ── .✦ hi! my name is orikaawa/ori
 
 ── .✦ my pronouns are he/she
