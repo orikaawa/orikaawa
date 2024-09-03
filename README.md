@@ -1,11 +1,9 @@
 ![boom](https://github.com/orikaawa/orikaawa/blob/main/cat.jfif)
 jumpscare!
 
-── .✦ hi! my name is orikaawa/ori, i'm 17 years old
+── .✦ hi! my name is orikaawa/ori
 
 ── .✦ my pronouns are he/she
-
-── .✦ eng/ru
 
 ── .✦ int, c+h, w2i!
 
