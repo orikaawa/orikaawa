@@ -1,15 +1,13 @@
-![boom](https://github.com/orikaawa/orikaawa/blob/main/cat.jfif)
-jumpscare!
+![boom](https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-09-09-24-07-20%20(1).png)
 
-── .✦ *hello! my name is orikaawa/ori*
+   ── .✦ *hello! my name is orikaawa/ori*
 
-── .✦ *my pronouns are he/she*
+   ── .✦ *my pronouns are he/she*
 
-── .✦ *int, c+h, w2i!*
+   ── .✦ *int, c+h, w2i!*
 
-── .✦ *fav music artists: Mindless Self Indulgence, ЩЕНКИ, Монеточка, mzlff, ПОЛМАТЕРИ*
+   ── .✦ *fav music artists: Mindless Self Indulgence, ЩЕНКИ, Монеточка, mzlff, ПОЛМАТЕРИ*
 
-── .✦ *my fandoms: omniscient reader's viewpoint, heaven official's blessing, link click, genshin impact, elevator hitch, dead plate, the summer hikaru died, omori, MDZS, hannibal NBC, marble hornets, Zeno remake, FNaF etc.*
 <!--
 **orikaawa/orikaawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
