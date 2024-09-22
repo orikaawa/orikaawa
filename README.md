@@ -1,13 +1,29 @@
-![boom](https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-09-09-24-07-20%20(1).png)
+<div id="header" align="center">
+  
+<img src="https://files.catbox.moe/rtnr6n.png"> 
 
-   ── .✦ *hello! my name is orikaawa/ori*
+<p align="center"
 
-   ── .✦ *my pronouns are he/she*
+<p align="center">
+<img src="https://files.catbox.moe/vtxcib.png"> 
 
-   ── .✦ *int, c+h, w2i!*
 
-   ── .✦ *fav music artists: Mindless Self Indulgence, ЩЕНКИ, Монеточка, mzlff, ПОЛМАТЕРИ*
+<p align="center">
+<img src="https://files.catbox.moe/nroljk.png" />
+</p>
 
+<div id="header" align="center">
+
+<img src="https://files.catbox.moe/i9aw9f.png" />
+</p>
+
+[<img src="https://files.catbox.moe/lqd6ti.png" />](https://rentry.co/seolhyvk)
+</p>
+
+<img src="https://files.catbox.moe/r3ouay.png">
+
+<p align="center"
+   
 <!--
 **orikaawa/orikaawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
